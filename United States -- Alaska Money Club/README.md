@@ -18,6 +18,8 @@ Working to build a network of bitcoiners throughout Alaska
 - **Number of Students Graduated:** Five Graduates
 
 ## 🏆 Recent Achievements
+In May, 2023 hosted virtual meet-up with Alex Stanczyk, Dom Bei, Greg Foss, Natalie Brunell, Dennis Porter, Sam Callahan, Andi Pitt, and Lisa Hough.
+
 Produced YouTube video: "Alaska's Future Lies in Bitcoin"
 https://youtu.be/3R7SFOHV3c4
 
