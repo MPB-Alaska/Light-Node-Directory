@@ -15,7 +15,7 @@ Working to build a network of bitcoiners throughout Alaska
 
 ## 🎓 Graduations
 - **Dates of Graduations:** July, 2023
-- **Number of Students Graduated:** Five
+- **Number of Students Graduated:** Five Graduates
 
 ## 🏆 Recent Achievements
 Produced YouTube video: "Alaska's Future Lies in Bitcoin"
