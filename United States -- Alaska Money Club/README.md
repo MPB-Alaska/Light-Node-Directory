@@ -30,7 +30,9 @@ Building contacts withing the Alaska Retirement Board and encouraging policy in 
 Working with contacts to encourage Alaska Permanent Fund Corp to invest in Bitcoin through Bitcoin ETF's.
 
 Published articles on Bitcoin Veterans:
+
 April 8, 2024 - Bitcoin OS: https://bitcoinveterans.org/bitcoin-os/
+
 April 23, 2024 - Bitcoin Starting Point: https://bitcoinveterans.org/bitcoin-starting-point/
 
 ## 📞 Contact Information
