@@ -23,6 +23,9 @@ https://youtu.be/3R7SFOHV3c4
 
 Working with Northern State Media to produce content from Bitcoin 2024 in Nashville comprised of both Mi Primer Bitcoin and Bitcoin Veterans content.
 
+Building contacts withing the Alaska Retirement Board and encouraging policy in colaboration with Proof of Workforce to allow State of Alaska employees access to the Bitcoin ETF's through their retirement plans.
+
+Working with contacts to encourage Alaska Permanent Fund Corp to invest in Bitcoin through Bitcoin ETF's.
 
 ## 📞 Contact Information
 - **Website:** AlaskaBTC.com
