@@ -4,7 +4,7 @@
 
 ## 📍 Location
 - **Country:** United States
-- **City:** Juneau
+- **City, State:** Juneau, Alaska
 
 ## 📖 About Us
 Working to build a network of bitcoiners throughout Alaska
